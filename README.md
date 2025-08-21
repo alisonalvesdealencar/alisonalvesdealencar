@@ -26,5 +26,5 @@
 
 ---
 
-## 🌎 Let's connect? - 💼 [LinkedIn]([https://linkedin.com/in/seu-perfil](https://www.linkedin.com/in/alison-alencar-817382152/])
+## 🌎 Let's connect? - 💼 [LinkedIn](https://linkedin.com/in/seu-perfil](https://www.linkedin.com/in/alison-alencar-817382152/)
 - 📧 alison.alencar@alencarconsultorias.com.br 
